@@ -1,0 +1,7 @@
+<b>Oversize Tişört: Modern ve Rahat Bir Tarzın Anahtarı</b>
+
+Oversize Tişört Nedir?
+
+<a href="https://shout.com.tr/oversize-tisort" rel="nofollow">Oversize tişört<a>, normal tişörtlere kıyasla daha geniş kesimlere sahip olan, konforlu ve salaş bir tarz sunan bir giyim parçasıdır. Hem kadınlar hem de erkekler için popüler olan bu tişörtler, özellikle gençler arasında büyük ilgi görmektedir. Rahatlığı ve şıklığı bir arada sunan oversize tişörtler, gardıropların vazgeçilmez parçalarından biridir.
+
+<img alt="" border="0" src="https://camo.githubusercontent.com/ac42e0366d5eed559a12220af75b85474b6222629b13e7810f42c4afd040bb10/68747470733a2f2f626c6f676765722e676f6f676c6575736572636f6e74656e742e636f6d2f696d672f622f523239765a32786c2f4156765873456733307a456662434332312d437034524c4f734a626f554a644337593144616542756e6778594375414c4a6254464c43635955463465525a6c33724657365a4c2d4269734270487a4d614f31716d68776f4d533754376a5570567a6c7074354f425f74675a4c557456663877464c52576d55793552754a785663614f613631704731306c47423053637250494f47464b41487558705f77652d63664c3546456b654b4e694e752d4f585553304a7965574f6d57365a4846693265314d32612f73313630302f77696e64737765707468696c6c6170696172792e6a7067" data-canonical-src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg30zEfbCC21-Cp4RLOsJboUJdC7Y1DaeBungxYCuALJbTFLCcYUF4eRZl3rFW6ZL-BisBpHzMaO1qmhwoMS7T7jUpVzlpt5OB_tgZLUtVf8wFLRWmUy5RuJxVcaOa61pG10lGB0ScrPIOGFKAHuXp_we-cfL5FEkeKNiNu-OXUS0JyeWOmW6ZHFi2e1M2a/s1600/windswepthillapiary.jpg" style="max-width: 100%;">
